@@ -81,7 +81,7 @@ UF League Portugal is open to sponsorships and partnerships for:
 - Hardware / skins / product activation  
 - Broadcast segments & branded content  
 
-If you are interested in partnering with **UF League Portugal – VRS Season 1**, please reach out via email.
+If you are interested in partnering with **UF League Portugal – Season 6**, please reach out via email.
 
 ---
 
